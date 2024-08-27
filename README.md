@@ -16,6 +16,6 @@ RYOKI TENKAI - MURYOU KUSHOU !
 
 ![](https://media.tenor.com/EjgO4DQeVYUAAAAM/hakari-dance.gif)
 
-![](https://media.tenor.com/VgQGIDtP6ecAAAAM/jujutsu-kaisen-sukuna.gif)
+![](https://media.tenor.com/vGVL5Hf11DwAAAAM/jujutsu-kaisen-hakari.gif)
 
 
