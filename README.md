@@ -14,6 +14,3 @@ RYOIKI TENKAI - IDLE DEATH GAMBLE !
 
 ![](https://media.tenor.com/vGVL5Hf11DwAAAAM/jujutsu-kaisen-hakari.gif)
 
- TUSK ACT 4 
-
-![](https://media1.tenor.com/m/DdlG2qFTBdIAAAAd/tusk-jjba.gif)
