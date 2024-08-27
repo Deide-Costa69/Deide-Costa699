@@ -8,10 +8,9 @@ RYOIKI  TENKAI - FUKUMA MIZUSHI !
 
 RYOIKI TENKAI - IDLE DEATH GAMBLE !
 
-RYOKI TENKAI - MURYOU KUSHOU !
-
-![](https://media.tenor.com/HoXg2JXLbisAAAAj/capple.gif)
-
-![](https://media.tenor.com/kD0dwlacmR0AAAAM/hakari.gif)
+RYOKI TENKAI - MURYOU KUSHOU ! 
 
 ![](https://media.tenor.com/EjgO4DQeVYUAAAAM/hakari-dance.gif)
+
+![](https://media.tenor.com/VgQGIDtP6ecAAAAM/jujutsu-kaisen-sukuna.gif)
+
