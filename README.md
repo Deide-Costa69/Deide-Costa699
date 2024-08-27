@@ -12,4 +12,4 @@ RYOKI TENKAI - MURYOU KUSHOU !
 
 ![](https://media.tenor.com/HoXg2JXLbisAAAAj/capple.gif)
 
-https://media.tenor.com/kD0dwlacmR0AAAAM/hakari.gif
+![](https://media.tenor.com/kD0dwlacmR0AAAAM/hakari.gif)
